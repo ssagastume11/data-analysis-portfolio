@@ -61,8 +61,8 @@ Outside of analytics, I’m a strong multitasker, and someone who thrives on sta
 - Rising Star Award – MCC (Apr 2022)  
 - Marketing Certificate (18 Credit Hours) – MCC (May 2021)  
 - National Honor Society of Leadership & Success – (Apr 2021)  
-- MST Academic Excellence Award – 2017–2018  
-- High Honors – Manchester School of Technology (Dec 2017)  
+- Video & Digital Media Certificate – May 29, 2019 
+- Digital Photography – Manchester Community College (Dec 2018)  
 
 ---
 
