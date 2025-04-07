@@ -79,7 +79,7 @@ I'm open to opportunities and always happy to connect!
 - **Email**: [sagassergio123@gmail.com](mailto:sagassergio123@gmail.com)  
 - **Phone**: (603) 820-4342  
 - **Location**: Manchester, NH  
-- **LinkedIn**: [here](www.linkedin.com/in/sergio-sagastume-4a3b601a8)
+- **LinkedIn**: [www.linkedin.com/in/sergio-sagastume-4a3b601a8](www.linkedin.com/in/sergio-sagastume-4a3b601a8)
 
 ---
 
