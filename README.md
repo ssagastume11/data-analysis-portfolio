@@ -5,7 +5,7 @@ Showcasing my data analysis portfolio.
 
 ### 🎯 Aspiring Data Analyst | Marketing Background | Lifelong Learner
 
-Welcome to my data analytics portfolio! I'm a detail-oriented, passionate individual transitioning into the field of **data analytics** after earning my **Bachelor’s Degree in Business Administration (Marketing)** and completing the **Google Data Analytics Certificate**.
+Welcome to my data analytics portfolio! I'm a detail-oriented, passionate individual with a background in business and marketing, now fully immersed in the field of **data analytics**. I earned my Bachelor's Degree in Business Administration (Marketing) and completed the **Google Data Analytics Specialization**, including the **Capstone: Complete a Case Study**, where I applied my skills to real-world datasets.
 
 With a strong foundation in marketing and a growing skill set in data tools like **SQL, R, Tableau, and spreadsheets**, I’m focused on transforming data into clear, actionable insights that help businesses grow and make smarter decisions.
 
